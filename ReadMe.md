@@ -1,5 +1,6 @@
 # 💫 About Me:
 👯 I’m looking to collaborate on<br>🌱 I’m currently learning
+👯 More about Me : https://hasyimdev.my.id/
 
 
 ## 🌐 Socials:
